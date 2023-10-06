@@ -5,26 +5,26 @@
 #### 列表将会根据各个群内举证信息而更新
 
 ### 收shell骗子列表：
-@qingjieshouliang\\
+@qingjieshouliang\
 
-无ID收shell骗子\\
+无ID收shell骗子\
 
 ![image](https://github.com/hcsmall/gz/assets/139908133/6ad2bcc2-dbef-4a14-83fd-3bc3815498c7)
 
 
 
 ### 出shell骗子列表：
-@rootseo11  卖给你收到钱后马上卖别人    地址：TCtUDU3mSdFUNkYYnJ3jzrw2CZcb3NY2Km\\
+@rootseo11  卖给你收到钱后马上卖别人    地址：TCtUDU3mSdFUNkYYnJ3jzrw2CZcb3NY2Km\
 
-@fogoogff   走担保的骗子\\
+@fogoogff   走担保的骗子\
 
-@zxvbnmseo   卖给你收到钱后马上卖别人  地址：TYe7RLye6zpocnWMdnFM9BFET23WmqNKZV\\
+@zxvbnmseo   卖给你收到钱后马上卖别人  地址：TYe7RLye6zpocnWMdnFM9BFET23WmqNKZV\
 
-@lzz002   卖了又卖  TEZzyQg48fG8bZ8Xy92zNzuwPjyWbEowmj\\
+@lzz002   卖了又卖  TEZzyQg48fG8bZ8Xy92zNzuwPjyWbEowmj\
 
-@tian2218     500一条的低情商骗子\\
+@tian2218     500一条的低情商骗子\
 
-@zxcvb1569\\
+@zxcvb1569\
 
 
 ### 信誉shell商
